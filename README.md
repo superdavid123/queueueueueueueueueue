@@ -1,2 +1,0 @@
-# queueueueueueueueueue
-toto je sskiigbmiadi
